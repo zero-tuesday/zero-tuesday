@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+- 😄 Pronouns: she/her/hers
+- ⚡ Fun fact: I'm a hobbyist glassblower. 
+
 <!--
 **zero-tuesday/zero-tuesday** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
